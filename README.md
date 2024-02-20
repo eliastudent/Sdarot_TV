@@ -11,6 +11,10 @@ Attached is a video for the description:
 
 
 
+https://github.com/eliastudent/Sdarot_TV/assets/103263877/7552d054-e40c-4488-ad18-42a82c8ae096
+
+
+
 
 
 
