@@ -8,3 +8,19 @@ and when that happens the computer makes a sound that lets me know the video is 
 
 
 Attached is a video for the description:
+
+finding a server:
+
+
+
+
+dosn't finding a server:
+
+
+
+
+
+
+
+
+
